@@ -1,1 +1,7 @@
 # KAHIQUE
+
+# Misão
+
+# Visão
+
+#Valores
